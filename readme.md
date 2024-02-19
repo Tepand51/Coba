@@ -1,3 +1,3 @@
 Nama :Tegar Pandji
-Hobi : Nonton Anime
+Hobi : Nonton film
 Hewan : Landak Mini
